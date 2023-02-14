@@ -18,4 +18,4 @@ Eric Cartman me gusta mucho ya que mi punto de vista y humor, pienso que es un p
 3. Stan Marsh
     - Ademas de Cartman, este personaje me gusta mucho su modelado y su personalidad
 4. Kenny McCormick
-    . Es muy conocido por morir de maneras muy raras en la mayoria de capitulos
+    - Es muy conocido por morir de maneras muy raras en la mayoria de capitulos
